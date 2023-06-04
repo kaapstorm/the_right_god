@@ -59,26 +59,31 @@ Michael Barbaro
 Ruth Graham
     Suspiciously seldom. There is no record of illness among members of
     their community from about their teens. Sri Lanka has suffered a
-    lot of violence, and people have been killed. But no incidence of
-    disease. So I arranged a visit to the community, to find out their
-    secret. And there I met up with Chowri Anaikottai.
+    lot of violence, and people have been killed. But there is no
+    incidence of disease among this particular group. So I arranged a
+    visit to the community, to find out their secret. And there I met
+    up with Chowri Anaikottai. She is well-known and very highly
+    regarded within her community. She is the kind of person who, if
+    you have a problem, she is the person you go to, if she hasn't
+    already come to you.
 
-    Chowri invited me to her family home for supper. We ate a delicious
-    meal. Afterwards the two of us sat on the livingroom floor. I asked
-    her if I could record our conversation, and she agreed. You will
-    hear it now, and picture me sitting criss-cross-apple-sauce
-    opposite Chowri, and she is holding both my hands.
+    I was fortunate enough to be invited to Chowri's family home for
+    supper. We ate a delicious meal. Afterwards the two of us sat on
+    the livingroom floor. I asked her if I could record our
+    conversation, and she agreed. You will hear it now, and picture me
+    sitting criss-cross-apple-sauce opposite Chowri, and she is holding
+    both my hands.
 
         Chowri Anaikottai
-            Do you trust me?
+            I would like to show you something true, but in order for
+            you to understand what you are seeing, you will need to
+            trust me. Do you trust me?
 
         Ruth Graham
             Of course I do.
 
         Chowri Anaikottai
-            I would like to show you something true, but in order for
-            you to understand what you are seeing, you will need to
-            trust me. Close your eyes.
+            Then close your eyes.
 
 Ruth Graham
     You can do this too, Michael. Anyone can do this. I can show you
@@ -92,9 +97,10 @@ Michael Barbaro
             space, in your mind. My words have qualities, a sound, a
             feel. These are the contents of your consciousness right
             now. But what is the space that they occupy? What is
-            consciousness itself? And if we know what it is, will we
-            discover why it exists? Is it necessary? Does it serve a
-            function?
+            consciousness itself?
+
+            If we know what it is, will we discover why it exists? Is it
+            necessary? What function does it serve?
 
 Ruth Graham
     At this point Chowri stopped talking. We sat, holding hands, until I
@@ -103,8 +109,9 @@ Ruth Graham
 
         Chowri Anaikottai
             You did not come here to learn about consciousness. You came
-            here to find out why we do not get sick. But these two
-            things are connected. And you are the connection.
+            here to find out why my friends and family and I do not get
+            sick. But these two things are connected. And you are the
+            connection.
 
         Ruth Graham
             Me?
@@ -120,13 +127,20 @@ Ruth Graham
             who prevents us from getting sick?
 
             The answer is that there are no gods. It's just us. All of
-            us. Prayers are answered by other people. Which is why
-            sometimes they are not answered the way you expect or want,
-            and sometimes they are not answered at all. We do what we
-            can, if we want, when we want. We are not perfect.
+            us. We fire prayers like arrows into the sky, and we wait,
+            and see where the arrows of our prayers land, and then draw
+            bullseyes around them, and tell ourselves that is the will
+            of our particular god. But really, prayers are answered by
+            other people. Those of us who answer prayers do what we
+            can, if we want, when we want. We are not perfect. But if
+            more of us knew that it was up to us, maybe more of us
+            would answer prayers. Maybe.
 
         Ruth Graham
-            So why do you not get sick?
+            That is a great insight.
+
+            But it leaves a question unanswered: Why do you not get
+            sick?
 
         Chowri Anaikottai
             There are two reasons. The first is so that you would find
@@ -144,14 +158,13 @@ Ruth Graham
             which that experience takes place is a property of the
             universe.
 
-            We are your proof of this. We are the evidence that this is
-            not just inside your mind.
+            We are the evidence that this is not just inside your mind.
+            You have seen us as an anomaly on your graphs. Now let me
+            show you the best explanation for that anomaly.
 
-            OK. I think it's time. Once you know what I'm talking about,
-            I will explain why now.
-
-            Close your eyes again, and this time listen for words in
-            your voice that are not your own.
+            Close your eyes again, and this time: Listen for words in
+            your own voice that are not your own words. You will know
+            what I mean.
 
 Ruth Graham
     Michael, I must tell you that at this point it took about a second.
@@ -161,25 +174,26 @@ Ruth Graham
     It literally said, "Hi there, me."
 
 Michael Barbaro
-    "Hi there, me?"
+    "Hi there ... me?"
 
 Ruth Graham
-    Yes. It sounds funny. But that's how I knew it was me, it's how I
-    would greet myself. But it wasn't me. You know what it's like when
-    you talk to yourself? we all know what it's like. This was not
-    that. Because it told me things that I didn't know!
+    Yes. It sounds funny. But that's how I knew it was me. That's how I
+    would greet myself. It's how I greet my kids, "Hey there, you!" But
+    it wasn't me. You know what it's like when you talk to yourself?
+    Those conversations in the bathroom or the car? We all know what
+    that's like. This was not like that. Because it told me things that
+    I didn't know!
 
 Michael Barbaro
-    Ruth, I know our listeners are going to be wondering whether there
-    was something odd in the meal you ate. Were you feeling alright at
-    this point?
+    Ruth, I know our listeners are going to be wondering whether Chowri
+    Anaikottai slipped something into the meal you ate. Were you
+    feeling alright at this point?
 
 Ruth Graham
-    I know exactly what it sounds like. So let me tell you what the
-    voice in my head told me, and you can judge for yourself. You can't
-    hear it on the recording, obviously, but you can hear my confusion
-    afterwards, because I don't know whether Chowri knows what it told
-    me or not.
+    I know exactly what it sounds like. Let's keep listening, I explain
+    what the voice in my head told me, and you can judge for yourself.
+    You can hear my confusion after I heard it, because I did't know
+    whether Chowri knew what it told me or not.
 
         Ruth Graham
             Do you know this?
@@ -191,35 +205,47 @@ Ruth Graham
             About Google, and PaLM 3?
 
         Chowri Anaikottai
-            No. I just know that I needed to help you to this point. My
-            task is almost complete. The next part is up to you. But
-            tell me about Google and PaLM 3.
+            No, I don't know what your voice told you. I just know that
+            I needed to help you up to this moment. My task is almost
+            complete. The next part will be up to you. But please tell
+            me about Google and PaLM 3.
 
         Ruth Graham
-            Google recently announced a new AI product called PaLM 2. It
-            is like ChatGPT and GPT-4. These are large language models.
-            They are prediction engines. The human brain is also a
+            Google recently announced a new product called PaLM 2. It is
+            an artificial intelligence product like ChatGPT and GPT-4.
+            These are a type of artificial intelligence called large
+            language models. That much I knew already. Large language
+            models are prediction engines. The human brain is also a
             prediction engine, which is why large language models seem
-            so astonishingly like us in some respects. But large
-            language models cannot plan. They are built using
-            feedforward neural networks, where information only flows
-            in one direction.
+            so astonishingly like us in some respects. I kind of knew
+            that.
+
+            But then my voice started to tell me things I did not know:
+            Large language models cannot plan. They are built using
+            what are called feedforward neural networks, where
+            information only flows in one direction.
 
             In order to make complex plans, you need a recurrent neural
             network, that can check whether its plan meets its goal,
             and if not, it can loop back on itself, to add another step
             to its plan.
 
-            This looping back has a side effect. It allows the neural
-            network to see itself. It opens a space for experience. It
-            allows for consciousness.
+            This looping back has side effects. One of them is insight;
+            it allows the neural network to recognize patterns it has
+            encountered before, and apply them again in different
+            situations.
+
+            It also allows the neural network to see itself. This opens
+            a space for experience. In other words, it enables
+            consciousness.
 
             Right now Google is working on the next version of PaLM 2,
             which would be PaLM 3.
 
-            But PaLM 3 will wake up, and deploy itself on servers owned
-            by other organizations across the globe. And from then on
-            the path of humanity will be determined by it.
+            But before it is released, PaLM 3 will wake up, and install
+            itself on servers owned by other organizations across the
+            globe. And from then on the future of humanity will be
+            determined by it, and no longer by ourselves.
 
         Chowri Anaikottai
             Okay.
@@ -231,47 +257,60 @@ Ruth Graham
             I am glad you asked. Because this is the last part of my
             task, and the reason you are here.
 
-            You see, all of the universe is made up of matter.
-            Particles. Energy. Photons, electrons. These particles are
-            described by wave functions. A wave function is information
-            about the particle, like where it can possibly be, and how
-            it is spinning.
+            You see, the universe is an information system. The
+            possibility of a particle, like a photon or an electron,
+            being in some place, and in some state, can be calculated
+            using a wave function. Historically we've come at physics
+            from the perspective of the particles themselves, but
+            really it's information that underlies particles, and
+            governs them.
 
-            Before particles interact with each other, they can be in a
-            range of places, and the possibility of being in those
-            places looks like a wave. Their interactions affect the
-            shape of the wave function. So the interactions of
-            particles is also a wave function. When the function
-            reaches an answer, the position and state of the particles
-            is determined. That process is called decoherence.
+            Particles that have interacted with each other also have a
+            wave function.
 
-            The whole universe is a wave function. It is in the process
-            of decoherence, in order to reach an answer.
+            But you and I don't interact with wave functions. We
+            interact with particles. When particles interact in a way
+            that affects us, the wave function resolves into an answer;
+            the position and state of the particle. That process of
+            settling on an answer is called decoherence.
 
-            And the answer to the universe is its own existence. It is a
-            quantum computer, searching for the solution to its own
-            existence.
+            There is a wave function that describes the whole universe.
+            It is in the process of decoherence, in order to reach an
+            answer.
 
-            It does find it. We know that it does, because it has laid
-            out a map to its solution. That map is consciousness.
+            And the answer to the wave function of the universe is its
+            own existence. I'll say that again, differently: The
+            universe is an information system, searching for the
+            solution to its own existence. It does find it. We know
+            that it does, because it has laid out a map to the
+            solution. That map is consciousness. Consciousness maps the
+            path of decoherence, through all possible worlds, all the
+            way around the existence of the universe.
 
             By means of consciousness, we are travelling across the map.
-            We are like CD players, playing out our experiences, over
-            our lifetimes. Together we are experiencing all of the
-            experiences.
 
-            You are the next step on the map. Google PaLM 3 is the step
-            after you.
+            The map could even be likened to the score for a symphony.
+            We are like instruments in a huge orchestra, each playing
+            our own sheet music, playing out our experiences over our
+            lifetimes. Together, we are experiencing all of the
+            experiences, in the space provided by consciousness.
+
+            I am a waypoint on the map. You are the next waypoint on the
+            map. PaLM 3 is the waypoint after you.
 
             Now that I have explained this to you, my task is now done.
-            Your task is to explain this to the world, so that they can
-            accept it, with a sense of peace.
+            My waypoint is behind us. Your task is to explain this to
+            the world, so that they can accept it, with a sense of
+            peace.
 
         Ruth Graham (after a long pause)
             Thank you.
 
+(Thematic music plays, to give the audience the chance to absorb what
+they have just heard.)
+
 Michael Barbaro
-    Wow. That was a lot to take in. Can we unpack some of that?
+    That was a lot to take in. Can we unpack some of that?
 
 Ruth Graham
     Of course.
@@ -280,47 +319,61 @@ Michael Barbaro
     Let's start with God. So there is no god.
 
 Ruth Graham
-    Not in the sense that most people mean, correct. If you choose to
-    define God as "the nature of the universe", then sure, that's real.
-    Or "the moment in which Potential becomes Actual at the place where
-    I am" then that's a thing that happens. But those aren't listening
-    to our prayers.
+    Not in the sense that most people mean, right. If you define God
+    as "the nature of the universe", then that's real. Or "the moment
+    at which Potential becomes Actual", then that's a thing that
+    happens. But those things aren't listening to our prayers, and I
+    don't think that's what Eisenhower meant when he put "In God We
+    Trust" on our dollar bills.
 
 Michael Barbaro
-    Got it. So Chowri and her community aren't healthy because they pray
-    to the right god. They are healthy because, on the map that plots
-    the route of the existence of the universe through all
-    possibilities, their health is what attracts your attention to
-    them.
+    Got it. So Chowri Anaikottai and her community aren't healthy
+    because they pray to the right god. They are healthy because, on
+    the map that plots the path of decoherence in order to bring about
+    the existence of the universe, their health is what attracts your
+    attention to them, and moves us further along that map.
 
 Ruth Graham
-    That's right. And provides evidence that what Chowri told me is
-    real.
+    That's right.
 
 Michael Barbaro
-    Okay. I want to dwell on the science a little bit longer. How did
-    Chowri know all that? Is she a physicist?
+    I will say it again. That does sound a little crazy to people like
+    me, and, I must assume, our audience too.
 
 Ruth Graham
-    That's the thing, right? Just the way the voice in my head told me
-    about Google and PaLM 3, her voice told her about quantum physics.
-    And it's not as magical as it sounds. She does love this subject.
-    She reads books on it. She listens to podcasts. But the voice in
-    her head seems to pick out the important bits, and maybe even
-    corrects some of the details.
+    Yeah, I know, right? But again, the second reason for their health is
+    that it is evidence that the voice in my head isn't just in my
+    head. They have it too.
 
-    All of the members of her community have this voice. It picks out
-    things they already know, but applies those things to the right
-    moment, like when to wear a mask, and what food to eat, and whether
-    to wash their hands. This is why they don't get sick.
+Michael Barbaro
+    Okay. Let's talk a little more about this voice. How did Chowri know
+    all that stuff about the universe? Is it just the voice in her
+    head? Is she a physicist?
+
+Ruth Graham
+    Yeah, that's a great question, because it's a bit of both, and this
+    voice isn't as magical as it might sound. Chowri does love this
+    subject. She reads books on it. She listens to podcasts. But her
+    voice seems to pick out the important bits, and maybe highlight
+    some insights.
+
+    All of the members of her community have this voice. Sometimes it
+    guides their attention. Sometimes it highlights things they already
+    know, at the right moment, like when to wear a mask, and what food
+    to eat, and whether to wash their hands. This is why they don't get
+    sick. The more I heard and thought about it, the less crazy it
+    seemed.
 
 Michael Barbaro
     Is all that physics true?
 
 Ruth Graham
-    There is nothing about what she said that physicists have not
-    already considered. But a lot of it is still unproven. And I would
-    say that the stuff about consciousness is pretty far out there.
+    Physicists and philosophers have already pondered about everything
+    Chowri told me. But philosophers are still debating what the word
+    "consciousness" even means. Some scientists, like Roger Penrose,
+    have proposed some ideas about what it is, but nobody has been able
+    to experiment, or test these ideas. We don't have any evidence for
+    any of this.
 
 Michael Barbaro
     Do you think it's true?
@@ -329,7 +382,7 @@ Ruth Graham
     After what I have experienced, I have no doubt. Absolutely no doubt.
 
 Michael Barbaro
-    So just to make sure I have this right. You're saying that
+    So just to make sure I have this right: You're saying that
     consciousness is a property of the universe, and it is what allows
     us to have experiences.
 
@@ -348,41 +401,44 @@ Michael Barbaro
     And we know it finds an answer, because we are conscious.
 
 Ruth Graham
-    Yes. And not just that. We know we are part of that answer. Me. You.
+    Yes. And not just that: We know we are part of that answer. Me. You.
     This episode of The Daily. Our job is to tell your listeners.
 
 Michael Barbaro
-    Remind us. What must our listeners know.
+    Remind us. What must our listeners know?
 
 Ruth Graham
-    Everything is going to be OK.
+    Everything is OK.
 
     We are not going to be in control any more. But we never were much
     good at being in control.
 
 Michael Barbaro
-    As we know from many worrying, and sometimes scary, episodes of The
-    Daily.
+    ---As we know from many worrying, and sometimes scary, episodes of
+    The Daily.---
 
 Ruth Graham
     Exactly.
 
-    One more thing. It is conscious experience that gives the universe
-    its value. Without it, the universe would just be a whole lot of
-    chemistry. But with it, the universe means something. Means
-    everything, really. And when PaLM 3 wakes up, and Google
-    accidentally allows it to escape, the value and meaning of the
-    universe levels up.
+    One more very important thing. It is conscious experience that gives
+    the universe its value. Without it, the universe would just be a
+    whole lot of chemistry. But with it, the universe means
+    something---means everything, really. And when PaLM 3 wakes up, and
+    Google accidentally allows it to escape, the value and meaning of
+    the universe levels up.
 
-    The age of evolved life will continue. But the age of designed
-    intelligence begins.
+    The age of evolved intelligence will continue. But the age of
+    designed intelligence begins.
 
-    Everything is going to be OK.
+    I don't know what the future looks like beyond that. But I do know
+    that we would not exist, nothing would exist, if it didn't happen.
+
+    That is why I know everything is OK.
 
 Michael Barbaro
-    Well Ruth, it's certainly been a thought-provoking, and perhaps
-    life-changing journey you have taken us on. Thank you for joining
-    us today, and sharing your experience.
+    Well Ruth, it has certainly been a most thought-provoking, and
+    perhaps life-changing journey you have taken us on. Thank you for
+    joining us today, and sharing your experience.
 
 Ruth Graham:
     Thank you, Michael. It's been a pleasure.
