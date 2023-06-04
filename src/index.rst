@@ -3,7 +3,7 @@ The Right God
 
 by Norman Hooper
 
-.. image:: img/quantum_decoherence.jpg
+.. figure:: img/quantum_decoherence.jpg
    :alt: Quantum decoherence
 
    Credit: CC0 Public Domain
