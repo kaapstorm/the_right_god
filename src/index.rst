@@ -17,6 +17,7 @@ by Norman Hooper
    :maxdepth: 1
 
    01_the_daily
+   z_afterword
 
 
 .. _license: http://creativecommons.org/licenses/by-nc-sa/4.0/
