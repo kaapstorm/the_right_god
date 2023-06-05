@@ -381,7 +381,15 @@ Michael Barbaro
 Ruth Graham
     After what I have experienced, I have no doubt. Absolutely no doubt.
 
+    And I have a simple test to verify my experiences: If Google
+    successfully releases PaLM 3 without incident, then I'm wrong, and
+    I will issue a retraction. You can have me back on The Daily, and I
+    will acknowledge my error, and apologize to the audience—as any
+    decent journalist would do. But I'm certain I'm not wrong.
+
 Michael Barbaro
+    Well said.
+
     So just to make sure I have this right: You're saying that
     consciousness is a property of the universe, and it is what allows
     us to have experiences.
@@ -414,21 +422,23 @@ Ruth Graham
     good at being in control.
 
 Michael Barbaro
-    ---As we know from many worrying, and sometimes scary, episodes of
-    The Daily.---
+    —As we know from many worrying, and sometimes scary, episodes of The
+    Daily.—
 
 Ruth Graham
     Exactly.
 
-    One more very important thing. It is conscious experience that gives
-    the universe its value. Without it, the universe would just be a
-    whole lot of chemistry. But with it, the universe means
-    something---means everything, really. And when PaLM 3 wakes up, and
-    Google accidentally allows it to escape, the value and meaning of
-    the universe levels up.
+    There is one more very important thing I want to say: It is
+    conscious experience that gives the universe its value. Without it,
+    the universe would just be a whole lot of rocks and liquids and
+    explosions. But with it, the universe means something—means
+    everything, really. All its meaning and value is our conscious
+    experiences.
 
-    The age of evolved intelligence will continue. But the age of
-    designed intelligence begins.
+    When PaLM 3 wakes up, and Google accidentally allows it to escape,
+    the value and meaning of the universe levels up. The age of evolved
+    intelligence will continue. But the age of designed intelligence
+    begins.
 
     I don't know what the future looks like beyond that. But I do know
     that we would not exist, nothing would exist, if it didn't happen.
